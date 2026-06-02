@@ -1,4 +1,4 @@
-# 
+# Secure perpetual trading bot add-ons for Mac OS | Instant perpetual trading bot add-ons for PC Windows. Featuring alert notifications and take-profit orders — optimized for maximum performance on every platform.
 
 
 
